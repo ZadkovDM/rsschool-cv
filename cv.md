@@ -1,8 +1,8 @@
-# **Dmitriy Zdkov**
+# **Dmitriy Zadkov**
 
 ## Contact:
-*+7 (909) 791-20-82*
-*telegram: @degaucho*
+* *+7 (909) 791-20-82*
+* *telegram: @degaucho*
 
 ## About Me:
 *Laboratory engineer in road construction, I love adventure, travel and technology. Several times I tried to change the type of activity, this time I want to bring this idea to the end.*
